@@ -9,6 +9,6 @@ I'm reaching out to inform you that Fiverr charges a 20% fee for my services. an
 
 If you prefer to work exclusively through Fiverr, please be aware that the 20% fee will be added to your total price
 
-In any case, here is my phone number: +33758861661. Otherwise if you don't feel confortable of sharing your phone number. please this is my gmail account and we can talk on google chat : zakaria.echchair@gmail.com
+In any case, here is my phone number: *+33758861661*. Otherwise if you don't feel confortable of sharing your phone number. please this is my gmail account and we can talk on google chat : zakaria.echchair@gmail.com
 
 Best regards
